@@ -1,0 +1,13 @@
+# Confirmed Roseter
+- Mr. T
+- Fulgens
+- Bird Character
+- Hattie
+- Brawler
+- Slinger
+- Fencing
+- Cowboy
+- Doctor
+- Cheddar
+- stealth rat
+- Slime? (zach)
